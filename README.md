@@ -1,6 +1,6 @@
-![Stats](https://github-readme-stats.vercel.app/api?username=CrankySupertoon&show_icons=true&theme=monokai)
+![Stats](https://github-readme-stats.vercel.app/api?username=NoraTheGamer&show_icons=true&theme=monokai)
 
-## ❗️Cranky Supertoon
+## ❗️ Nora
 
 ## 🔶 She / They
 
