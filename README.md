@@ -2,7 +2,7 @@
 
 ## ❗️ Nora
 
-## 🔶 She / They
+## 🔶 She / Her
 
 ## 🧩 Autistic / Transgender
 
