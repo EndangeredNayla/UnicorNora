@@ -2,8 +2,8 @@
 
 ## ❗️ Nora
 
-## 🔶 She / Her
+## 🔶 They / She
 
-## 🧩 Autistic / Transgender
+## 🧩 Transgender / Autistic / Possibly Borderline
 
 ## 🧁 10/03/03
